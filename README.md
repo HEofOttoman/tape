@@ -9,5 +9,5 @@ I have a perfectionism problem! I must stop myself here or I will spend like 5 h
 
 where can i listen?
 Among the many jams I ended up with, I put these ones up: 
-- (latest) [https://voca.ro/1aIVTP1mcvsM](https://voca.ro/1aIVTP1mcvsM]
+- (latest) [https://voca.ro/1aIVTP1mcvsM](https://voca.ro/1aIVTP1mcvsM)
 - (other one) [https://voca.ro/1k8ayReZV1RD](https://voca.ro/1k8ayReZV1RD)
